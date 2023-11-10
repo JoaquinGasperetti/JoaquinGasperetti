@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JoaquinGasperetti
-- 👀 I’m interested in batichico
-- 🌱 I’m currently learning mariajuana
-- 💞️ I’m looking to collaborate on pornhub
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 
 <!---
